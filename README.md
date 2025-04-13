@@ -14,6 +14,9 @@ I also interested in others aspect: `Math` `Phycics` `Chemistry` `Singing` `Iris
 - Email: `2329583515@qq.com`
 - BiliBili: `SmashTheEgo`
 
+## Life motto
+- Just do your wanted
+
 
 <!---
 Hello-lingu/Hello-lingu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
